@@ -1,1 +1,1 @@
-# simi..github.io
+# simi.github.io
